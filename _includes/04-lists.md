@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+1. EAGLES
+2. SEAHAWKS
+3. EVERYONE ELSE
+   1. DIRTBAG COWBOYS
+   2. TEAM THAT WILL NEVER BE NAMED
+   3. giANTS
